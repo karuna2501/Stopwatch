@@ -1,1 +1,1 @@
-{https://freeimage.host/i/dKy6KMl}
+[!https://freeimage.host/i/dKy6KMl]
